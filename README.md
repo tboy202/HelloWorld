@@ -1,2 +1,2 @@
-# HelloWorld
-This Is where I'm going to begin my journey
+# HelloWorld 
+This Is where I'm going to begin my journey. Too long have I forgon my training in the ways of the new World. Judgement day, Schwarzenegger is not coming back to save my ass and I cant pull pints or sing songs forever! Essentially fantasizing about being able to do somthing with my time that I havent fully committed too so just playing around. All in all would love to learn to code and web development.
